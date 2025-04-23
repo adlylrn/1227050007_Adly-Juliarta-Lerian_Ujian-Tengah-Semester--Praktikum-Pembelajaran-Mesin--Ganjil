@@ -1,0 +1,1 @@
+# 1227050007_Adly-Juliarta-Lerian_Ujian-Tengah-Semester--Praktikum-Pembelajaran-Mesin--Ganjil
